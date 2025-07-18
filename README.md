@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Muhammad Ammad Irshad
-**A passionate Software Engineering student | C# & Java Developer | Aspiring Game Creator & Cybersecurity Enthusiast
+A passionate Software Engineering student | C# & Java Developer | Aspiring Game Creator & Cybersecurity Enthusiast
 
 Email Me 👉 ✉️ **ammad9997a@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
