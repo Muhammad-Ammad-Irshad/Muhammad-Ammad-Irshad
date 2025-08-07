@@ -3,7 +3,7 @@ A passionate Software Engineering student | C# & Java Developer | Aspiring Game 
 
 Email Me 👉 ✉️ **ammad9997a@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** 20 days Challenge: C# & Java each
+- 🔭 **I’m currently working on:** 3 months cybersecurity Internship.
 - 🌱 **I’m currently learning:** Cybersecurity learner | Exploring ethical hacking & digital defense
 - 💬 **Ask me about:** Collaboration, Tech Support
 
